@@ -1,0 +1,6 @@
+***Step One:***
+Pulse flour, sugar, and salt in food processor until well combined. Add the butter cubes, and pulse 3-4 times. Turn the food processor on, and quickly add ice water, one tablespoon at a time, until pie dough comes together. (This should take less than 60 seconds). Remove dough, and form into two equal rounds. Wrap dough in plastic wrap and refrigerate at least an hour to allow the flour to rest.
+***Step Two:***
+Combine all pie filling ingredients, and allow to sit for 30 minutes, stirring every 10 minutes.
+***Step Three:***
+Roll out one round of pie dough an inch bigger than your pie pan. Place dough in pie pan, and brush with egg wash. Using a slotted spoon, fill crust with strawberry mixture, as to not get too much of the liquid into the pie shell. Roll out the second dough round, and cover the pie. Crimp to your liking with your fingers or a fork. Using a small knife, cut several vents in the top crust to allow the steam to release. You can even get fancy with a small cookie cutter! Brush the top of the pie with egg wash, and sprinkle the top with sugar. Bake the pie at 375 degrees for 45 minutes to an hour. You'll know it's done when the fruit begins to bubble!
